@@ -1,8 +1,6 @@
-- 👋 Hi, I’m @SealSsteak
-- 👀 I’m interested in South park
-- 🌱 I’m currently learning My own subjects, mostly self-taught.
-- 💞️ I’m looking to collaborate on nothing!
-- 📫 How to reach me: please don't! >_<
+Whyyyy... hello! I am the greatest of all time! *GOAT!* and uh.... yeah!
+
+Please don't ever ever EVER try to reach me on here... I will not see it. If you REALLY need to message me- DON'T! :D
 
 <!---
 SealSsteak/SealSsteak is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
